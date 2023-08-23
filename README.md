@@ -1,1 +1,1 @@
-# yu-ootd
+# ootd
